@@ -1,2 +1,0 @@
-# Luka
-Created By metoushela 
